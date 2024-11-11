@@ -1,1 +1,1 @@
-www.liamreidy.com  |  Discord: read_e
+Discord: read_e
